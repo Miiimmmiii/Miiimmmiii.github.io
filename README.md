@@ -3,7 +3,7 @@
 
   
 ## Day 1 : Learn the German Alphabet and Pronunciation 
-*** By the end of this class, learners will be able to recognize and pronounce all letters of the German alphabet accurately. ***
+***By the end of this class, learners will be able to recognize and pronounce all letters of the German alphabet accurately.***
 
   First watch and listen the following videos: 
   
