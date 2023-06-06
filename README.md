@@ -5,6 +5,8 @@
 ## Day 1 : Learn the German Alphabet and Pronunciation 
 ***By the end of this class, learners will be able to recognize and pronounce all letters of the German alphabet accurately.***
 
+  ![Das Alphabet](https://tcl.azureedge.net/p/images_ar/art_img/5b3dc7bf-8ade-44f5-b1a3-916dc85a6656.jpg)
+  
   First watch and listen the following videos: 
   
   > ABC Das deutsche Alphabet → Teil 1 https://www.youtube.com/watch?v=UD75WIYHMlc
