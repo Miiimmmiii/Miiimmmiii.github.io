@@ -28,3 +28,6 @@ First what the video in its entirety without pausing to search for word translat
   _Ein Rehkitz rennt durch den Wald. Es läuft vor dem Kaninchen her. Auch den Elefanten hat es hinter sich zurückgelassen. Es springt über den Fluss. Es rennt an der zerfallenden Mauer vorbei. Auf der Grasfläche liegt ein großer Findling. Es stolpert darüber und fällt. Dann fängt es an zu weinen. Der Affe massiert sein Bein, doch dem Rehkitz fließen weiterhin die Tränen aus den Augen. Bruder Bär hebt es auf. Aber das Rehkitz weinte weiter. Seine Mutter kam und sagte: „Schau mal, jetzt wird der Findling geschlagen!“ Darauf sagt das Rehkitz: „Oh nein, schlag ihn nicht sonst fängt er auch noch an zu weinen!“ Die Mutter lachte und das Rehkitz musste auch lachen._
 
   _A fawn runs through the forest. It runs ahead of the rabbit. It has also left the elephant behind. It jumps over the river. It runs past the crumbling wall. There is a large boulder on the grassy area. It stumbles over it and falls down. Then it starts to cry. The monkey massages its leg, but the tears keep flowing from the fawn's eyes. Brother Bear picks it up. But the fawn keeps crying. Its mother came and said, "Look, now the boulder is being beaten!" In response, the fawn says, "Oh no, don't hit it, otherwise it will start crying too!" The mother laughed, and the fawn had to laugh too._
+
+  
+  ## Day 2
