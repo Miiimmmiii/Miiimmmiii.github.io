@@ -9,7 +9,7 @@
 
   ![Das Alphabet](https://tcl.azureedge.net/p/images_ar/art_img/5b3dc7bf-8ade-44f5-b1a3-916dc85a6656.jpg)
   
-  First watch and listen the following videos: 
+ Please begin by watching and listening to the following videos. Focus on the pronunciation of each letter and the accompanying examples: 
   
   > ABC Das deutsche Alphabet → Teil 1 https://www.youtube.com/watch?v=UD75WIYHMlc
   >
