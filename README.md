@@ -15,7 +15,7 @@
   >
   > ABC Das deutsche Alphabet Teil 2 → https://www.youtube.com/watch?v=VN3KNir7Kig
 
-  ![Bitte lächeln] (https://www.bookbox.com/wp-content/uploads/2022/09/069_SMP_GER_Thumbnail.png)
+  ![Bitte lächeln](https://www.bookbox.com/wp-content/uploads/2022/09/069_SMP_GER_Thumbnail.png)
   
 Now that we are familiar with the alphabet, watch the video titled * *Bitte lächeln!* *
 First what the video in its entirety without pausing to search for word translations. Then, read the transcript provided below and underline any unfamiliar words. Afterwards, rewatch the video and use the context to deduce the meaning of those words. Finally, search for the translations of the underlined words to enhance your understanding.
