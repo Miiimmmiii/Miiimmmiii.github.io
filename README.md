@@ -15,12 +15,15 @@
   >
   > ABC Das deutsche Alphabet Teil 2 → https://www.youtube.com/watch?v=VN3KNir7Kig
 
-  ![Bitte lächeln](https://www.bookbox.com/wp-content/uploads/2022/09/069_SMP_GER_Thumbnail.png)
+
   
 Now that we are familiar with the alphabet, watch the video titled *Bitte lächeln!* 
 First what the video in its entirety without pausing to search for word translations. Then, read the transcript provided below and underline any unfamiliar words. Afterwards, rewatch the video and use the context to deduce the meaning of those words. Finally, search for the translations of the underlined words to enhance your understanding.
   > Bitte lächeln! → https://youtu.be/JnG5UM-3Qnk
 
+  
+    ![Bitte lächeln](https://www.bookbox.com/wp-content/uploads/2022/09/069_SMP_GER_Thumbnail.png)
+  
   
   _Ein Rehkitz rennt durch den Wald. Es läuft vor dem Kaninchen her. Auch den Elefanten hat es hinter sich zurückgelassen. Es springt über den Fluss. Es rennt an der zerfallenden Mauer vorbei. Auf der Grasfläche liegt ein großer Findling. Es stolpert darüber und fällt. Dann fängt es an zu weinen. Der Affe massiert sein Bein, doch dem Rehkitz fließen weiterhin die Tränen aus den Augen. Bruder Bär hebt es auf. Aber das Rehkitz weinte weiter. Seine Mutter kam und sagte: „Schau mal, jetzt wird der Findling geschlagen!“ Darauf sagt das Rehkitz: „Oh nein, schlag ihn nicht sonst fängt er auch noch an zu weinen!“ Die Mutter lachte und das Rehkitz musste auch lachen._
 
