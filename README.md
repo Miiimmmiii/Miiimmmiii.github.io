@@ -30,4 +30,17 @@ First what the video in its entirety without pausing to search for word translat
   _A fawn runs through the forest. It runs ahead of the rabbit. It has also left the elephant behind. It jumps over the river. It runs past the crumbling wall. There is a large boulder on the grassy area. It stumbles over it and falls down. Then it starts to cry. The monkey massages its leg, but the tears keep flowing from the fawn's eyes. Brother Bear picks it up. But the fawn keeps crying. Its mother came and said, "Look, now the boulder is being beaten!" In response, the fawn says, "Oh no, don't hit it, otherwise it will start crying too!" The mother laughed, and the fawn had to laugh too._
 
   
-  ## Day 2
+  ## Day 2 : Personalpronouns (nominative) and Present tense  
+  ***By the end of this class, learners will be able to use 
+  
+  ### Personalpronomen 
+  
+  We use Personal pronouns to replace names we've already mentioned, to talk about ourselves or someone or something else.
+  
+  Watch the following video, listen, repeat and write down the examples of each personalpornuoun. 
+  
+   > Personalpronomen im Nominativ → https://www.youtube.com/watch?v=QfCzreKRGQM 
+  
+  ![Personalpronomen](https://germanwithlaura.com/wp-content/uploads/2019/07/english-german-nominative-personal-pronouns.png)
+  ### Verbkonjugation im Präsens 
+  
