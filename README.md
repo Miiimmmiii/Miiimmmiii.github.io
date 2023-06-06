@@ -6,5 +6,6 @@
 ***By the end of this class, learners will be able to recognize and pronounce all letters of the German alphabet accurately.***
 
   First watch and listen the following videos: 
-  [ABC Das deutsche Alphabet: Teil 1] (https://www.youtube.com/watch?v=UD75WIYHMlc)
-  [ABC Das deutsche Alphabet: Teil 2] (https://www.youtube.com/watch?v=VN3KNir7Kig) 
+  
+  > ABC Das deutsche Alphabet--> Teil 1 https://www.youtube.com/watch?v=UD75WIYHMlc
+  > ABC Das deutsche Alphabet--> Teil 2 https://www.youtube.com/watch?v=VN3KNir7Kig
