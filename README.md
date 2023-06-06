@@ -7,6 +7,6 @@
 
   First watch and listen the following videos: 
   
-<sub> [ABC Das deutsche Alphabet: Teil 1] (https://www.youtube.com/watch?v=UD75WIYHMlc) 
+> [ABC Das deutsche Alphabet: Teil 1] (https://www.youtube.com/watch?v=UD75WIYHMlc) 
  
-<sub> [ABC Das deutsche Alphabet: Teil 2] (https://www.youtube.com/watch?v=VN3KNir7Kig) 
+> [ABC Das deutsche Alphabet: Teil 2] (https://www.youtube.com/watch?v=VN3KNir7Kig) 
