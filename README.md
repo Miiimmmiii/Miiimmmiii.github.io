@@ -14,3 +14,8 @@
   > ABC Das deutsche Alphabet → Teil 1 https://www.youtube.com/watch?v=UD75WIYHMlc
   >
   > ABC Das deutsche Alphabet → Teil 2 https://www.youtube.com/watch?v=VN3KNir7Kig
+
+Now that we are familiar with the alphabet, watch the video titled * *Gute Nacht, Tinku!* *. The video tells the story of Tinku, a little pup at Mangu’s farm which is not sleepy at all and decides to step out into the night where he will meet many interesting animals. 
+First what the video in its entirety without pausing to search for word translations. Then, read the transcript provided below and underline any unfamiliar words. Afterwards, rewatch the video and use the context to deduce the meaning of those words. Finally, search for the translations of the underlined words to enhance your understanding.
+
+  * * 
